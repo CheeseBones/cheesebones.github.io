@@ -1,1 +1,1 @@
-![ ](https://ph-test-11.slatic.net/p/4727d52287b759a7d925b31d147f13a3.jpg)
+![ ](https://external-preview.redd.it/PVilxGidbEIEbHZzpqAP6CR1S1RLAkxl0GZOOzqPuCc.png?auto=webp&s=61452723536154cba7de1d4c4b6b0de073639863)
