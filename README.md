@@ -1,9 +1,6 @@
-## My Favourite Albums
-![Nevermind](https://upload.wikimedia.org/wikipedia/en/b/b7/NirvanaNevermindalbumcover.jpg)
-![Bleach](https://upload.wikimedia.org/wikipedia/en/a/a1/Nirvana-Bleach.jpg)
-![Around The Fur](https://images.genius.com/fa8b202bb799e4d8325e830a5d1528c1.300x300x1.png)
-![OK Computer](https://upload.wikimedia.org/wikipedia/en/b/ba/Radioheadokcomputer.png)
-![Nevermind The Bollocks](https://upload.wikimedia.org/wikipedia/en/4/4c/Never_Mind_the_Bollocks%2C_Here%27s_the_Sex_Pistols.png)
-![AM](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/%22AM%22_%28Arctic_Monkeys%29.jpg/220px-%22AM%22_%28Arctic_Monkeys%29.jpg)
-![Core](https://upload.wikimedia.org/wikipedia/en/1/19/Stonetemplepilotscore.jpeg)
-![Trench](https://upload.wikimedia.org/wikipedia/en/f/f3/Trench_Twenty_One_Pilots.png)
+# i am slowly losing sense of reality
+[help](https://i1.sndcdn.com/artworks-Z7sBpMiqTeKKEOHz-lIo2sQ-t500x500.jpg)
+[help me](https://i.ytimg.com/vi/B1TbmExYBzE/mqdefault.jpg)
+listening to kendrick lamar "humble" in math class
+[ ](https://i.pinimg.com/236x/76/89/1a/76891af90d85e62de8ce2388dfec7327.jpg)
+[ ](http://videos1.memedroid.com/videos/UPLOADED681/61e77c67a77a6.jpeg)
